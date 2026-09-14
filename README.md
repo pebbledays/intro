@@ -19,8 +19,7 @@ seen on either top part of spawn or on my island !
 
 <img width="1500" height="210" alt="2471" src="https://github.com/user-attachments/assets/c3ee59f5-4850-4df3-8cfa-617f06398982" />
 
-# "  woof ! " 
-<img width="20" height="20" alt="2470" src="https://github.com/user-attachments/assets/065e9e70-a860-41b0-8cb6-a60dc3890c89" />
+# "  woof ! " <img width="20" height="20" alt="2470" src="https://github.com/user-attachments/assets/065e9e70-a860-41b0-8cb6-a60dc3890c89" />
 
 
 # FANDOMS : 4saken , dw , dod , pjsk , aha , mlp , jjk etc !

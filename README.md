@@ -3,7 +3,6 @@
 
 <img width="500" height="374" alt="2472" src="https://github.com/user-attachments/assets/88ec49ce-c1da-4a35-a5ff-4a4550615124" />
    ♡ vyn / oreowaffle
-<img width="736" height="981" alt="2469" src="https://github.com/user-attachments/assets/c6a67278-b640-4377-9d58-3c0fd2d38369" />
 
 
 <img width="2048" height="2048" alt="2473" src="https://github.com/user-attachments/assets/68bf720b-9ab7-4bfc-bc8c-d862274f0229" />
@@ -37,7 +36,9 @@ seen on either top part of spawn or on my island !
 | pebble + artful fictkin ♡ !   |  
 c+hs  are heavily appreciated ^_^  :  
 
-"   bworf...  "
+"   bworf...  "    
+
+- my timezone is gmt / bst ^_^ [ utc+6
 
 <img width="90" height="90" alt="2467" src="https://github.com/user-attachments/assets/a499342d-c83c-4278-a991-e5e316754172" />
 

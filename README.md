@@ -37,7 +37,7 @@ c+hs  are heavily appreciated ^_^  :
 
 "   bworf...  "    
 
-- my timezone is gmt / bst ^_^ [ utc+6
+- my timezone is gmt / bst ^_^ [ utc+1
 
 <img width="90" height="90" alt="2467" src="https://github.com/user-attachments/assets/a499342d-c83c-4278-a991-e5e316754172" />
 

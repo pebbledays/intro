@@ -2,12 +2,12 @@
 # intro  
 
 <img width="500" height="374" alt="2472" src="https://github.com/user-attachments/assets/88ec49ce-c1da-4a35-a5ff-4a4550615124" />
-   ♡ vyn / oreowaffle
+   vynical ,   peb ,   jammerin
 
 
 <img width="2048" height="2048" alt="2473" src="https://github.com/user-attachments/assets/68bf720b-9ab7-4bfc-bc8c-d862274f0229" />
 
-# my art
+
 
 
 <img width="1500" height="210" alt="2471" src="https://github.com/user-attachments/assets/601121b2-9eeb-431d-9b98-851ce22e4f08" />

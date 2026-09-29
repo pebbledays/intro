@@ -50,7 +50,11 @@ pebble. / vynical ,
 
 
 
-my timezone is gmt , bst | UK TIMEZONE | UTC+1
+my timezone is gmt , bst | UK TIMEZONE | UTC+1 IN THE SUMMER , UTC+0 IN THE WINTER
+
+
+
+
 
 
 <img width="588" height="25" alt="2989" src="https://github.com/user-attachments/assets/f20dddaf-90b5-439c-8fee-b7fef6085105" />
